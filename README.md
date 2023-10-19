@@ -1,6 +1,3 @@
-![Uploading p1.jpg…]()
-
-
 | Epidia |
 
 
